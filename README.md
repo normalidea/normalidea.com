@@ -1,1 +1,1 @@
-# homepage for normalidea.io
+# homepage for normalidea.com
